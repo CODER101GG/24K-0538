@@ -11,4 +11,4 @@
 
 
 
-![picture of Abeer Siddiqui](https://imgtr.ee/images/2024/08/31/c1ff644842af45ebade6450d57a3a576.jpeg)
+![picture of Abeer Siddiqui]()
